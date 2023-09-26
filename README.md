@@ -1,2 +1,1 @@
-# rleifke.github.io
-personal website 
+I used to be...just read the website!
